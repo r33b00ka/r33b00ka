@@ -1,4 +1,4 @@
-## hi there, i'm Rebecca ✨
+## Hi there, i'm Rebecca ✨
 
  🧠Computer Science Student at UCD <br>
 
